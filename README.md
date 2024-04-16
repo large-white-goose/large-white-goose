@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @large-white-goose
 
 
-- 📫 How to reach me
+- 📫 How to contact me
 
 - Nice Try Feds
 - 
